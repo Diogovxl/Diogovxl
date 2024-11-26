@@ -1,0 +1,5 @@
+- 👋 Olá, eu sou o @Diogovxl
+- 👀 Estou interessada em mais empregos
+- 💞️ Eu estou trabalhando com o Alura 
+- 📫 Meu e-mail:00001092584663sp@al.educacao.sp.gov.br
+- 😄 Pronome:Ela/Dela
